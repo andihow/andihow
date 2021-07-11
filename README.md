@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @andihow
-- 👀 I’m interested in crypto and coding
+- 👀 I’m interested in digital art, crypto and coding
 
 
